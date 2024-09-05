@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+🔭 I’m currently working on my degree. 
+- 🌱 I’m currently learning about anthropology. 
+- 👯 I’m looking to collaborate on nothing at the moment. 
+- 🤔 I’m looking for help with everything. 
+- 💬 Ask me about nothing. 
+- 📫 How to reach me: check my github profile. 
+- 😄 Pronouns: they/them/theirs. 
+- ⚡ Fun fact: nothing is fun. 
